@@ -1,6 +1,12 @@
 # ZantuSoulJourney
 Testimonials of people who've walked with me for a while
 
+
+
+Mghoul — 04.03.2025 at 6:03 PM
+really helped me, I didn't know there was a whole world inside of me that needed to be explored.
+is that good :v
+
 Swoony — 2/17/2025 4:58 AM
 I’m sorry for the late response, it was the way you broke down the concepts that was easy to understand, For example, when I commented on the cool shading; you then showed me how light can mix and bounce off other objects creating different hues!
 Additionally you had great art wisdom! It was really good and I’m still actually drawing because you explained the importance of consistency and letting go of the fear of failure. I think both of these are extremely valuable and awesome! 
