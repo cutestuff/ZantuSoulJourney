@@ -1,7 +1,8 @@
 # ZantuSoulJourney
 Testimonials of people who've walked with me for a while
 
-
+thalia — 04.03.2025 at 8:26 PM
+After talking to you for awhile I realized that there was a pattern in the way that my boyfriend and I communicate, and from then on it’s easier to see how I can communicate better with him. You’ve helped me realize that there are some things that I do when I communicate that could trigger my boyfriend’s fight or flight mode and ways that I could avoid doing that to have a better communication with him. Thank you!! I’m going to try it out and see if there is a progress. I’m more hopeful now that we’ve figured it out 
 
 Mghoul — 04.03.2025 at 6:03 PM
 really helped me, I didn't know there was a whole world inside of me that needed to be explored.
