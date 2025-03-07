@@ -6,12 +6,14 @@
 * You know if you invest in the right thing now, you'll get out of the rut and into high performance
 * Your confidence in yourself is low, and you know you need better guidance on how to manage yourself. 
 
-# The Introduction
-* You'll learn a specific 3 Minute Meditation 
-* You'll learn how measure and manage your Stress-Levels
+# Just the Introduction will teach you
+* a specific 3 Minute Meditation 
+* measurement and ability manage your Stress-Levels
 * We'll talk about asking for help and provide you with a solution to make it easier
 * You'll learn the first method to get a glimpse behind your belief-system
 * 15-20 Minute Excercises to do at home
 
-This is a highly paced course to give you the tools that will be with you for the rest of your life. Having when you're young will give you a head-start
+This is a highly paced course to give you the tools that will be with you for the rest of your life. Knowing these when you're young will give you a head-start. Learning them later in life will help you find calm and make peace with your inner world.
+
+Feel free to message me at ZantuSoulJourney@tuta.io
 
