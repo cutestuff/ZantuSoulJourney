@@ -1,5 +1,5 @@
 # If this is you: 
-* You Want to lose fear of failure
+* You want to lose fear of failure and imposter syndrome
 * You want to become energetic and successful, but you're suffering from negativity and you want change, now.
 * You want to feel safer in this world and you want to help others feel more safe
 * You know you need a way to solve these problems but you can't seem to find the right method.
