@@ -1,6 +1,11 @@
 # ZantuSoulJourney
 Testimonials of people who've walked with me for a while
 
+Sumbudy — 15.03.2025 at 9:05 AM
+It was likely bringing attention to the way I speak to myself in a deprecating manner which I never really looked into nor even noticed until now which I'll evaluate if it's an issue or not.
+I'd also like to appreciate the gentleness of the way you spoke to me about the issue which would've helped a lot if I already knew the issue and felt insecure about it but I'm only now just noticing it now thanks to you, ma'am. (edited)
+
+
 thalia — 04.03.2025 at 8:26 PM
 After talking to you for awhile I realized that there was a pattern in the way that my boyfriend and I communicate, and from then on it’s easier to see how I can communicate better with him. You’ve helped me realize that there are some things that I do when I communicate that could trigger my boyfriend’s fight or flight mode and ways that I could avoid doing that to have a better communication with him. Thank you!! I’m going to try it out and see if there is a progress. I’m more hopeful now that we’ve figured it out 
 
